@@ -1,1 +1,1 @@
-# scaling-octo-parakeet
+# my-own-diary-of-death
